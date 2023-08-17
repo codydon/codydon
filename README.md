@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **onseriodon@gmail.com**
 
-- ⚡ Fun fact **Roses are #ff0000, violets are #ooooff . If you can read this, you are a nerd √4 .**
+- ⚡ Fun fact **Roses are #ff0000, violets are #0000ff . If you can read this, you are a nerd √4 .**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
